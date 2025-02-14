@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @devstrwiz
 - 👀 I’m interested in ELDEN RING SPEAK TO ME ABOUT ELDEN RING
-- 🌱 I’m currently learning C#
+- 🌱 I’m currently learning whatever dude 
 - 💞️ I’m looking to collaborate on absolutely notign
 - 📫 How to reach me: dont
 - 😄 Pronouns: it/he/they for FUICKS sake
