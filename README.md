@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @devstrwiz
-- 👀 I’m interested in ELDEN RING SPEAK TO ME ABOUT ELDEN RING
+- 👀 I’m interested in that clock from limbus company #myclock
 - 🌱 I’m currently learning whatever dude 
 - 💞️ I’m looking to collaborate on absolutely notign
 - 📫 How to reach me: dont
