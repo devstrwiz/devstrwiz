@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning whatever dude 
 - 💞️ I’m looking to collaborate on absolutely notign
 - 📫 How to reach me: dont
-- 😄 Pronouns: it/he/they for FUICKS sake
+- 😄 Pronouns: they/he
 - ⚡ Fun fact: autism
